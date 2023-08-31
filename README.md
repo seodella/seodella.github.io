@@ -1,1 +1,0 @@
-# seodella.github.io
